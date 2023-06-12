@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @lilOxe
+👋 Hi, I’m @lilOxe
